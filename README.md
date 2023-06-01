@@ -8,7 +8,7 @@
 
 **Sahil5713/Sahil5713** 
 
-Here are some ideas to get you started:
+
 
 - 16 jaar oud
 - Nova college
